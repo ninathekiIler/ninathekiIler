@@ -7,7 +7,7 @@
 w2i & c+h encouraged unless specified otherwise
 </div>
 <div align="center">
-check strawpage for more info ‎‎ (´◞ ✚𓏼 )།
+check strawpage 4 more info!! ‎‎ ପ ꒰ ★ 𖥦 ◝ ꒱
 </div>
 <p align="center">
 <img width="96px" height="53px" src="https://media1.tenor.com/m/jM7ZjNTN_RIAAAAC/smile-dog-smile.gif">
