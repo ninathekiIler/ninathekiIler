@@ -8,5 +8,4 @@
 <div align="center">
 <a href="https://war-paint.straw.page/">STRAW</a>ㅤㅤ￴￴￴￴￴
 <a href="https://war-paint.atabook.org/">NEW ATABOOK</a>ㅤㅤ￴￴
-<a href="https://guns.lol/war_paint">GUNS</a>
 </div>
